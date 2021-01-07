@@ -13,7 +13,7 @@ Beragam fitur yang ada di `Seva Tempat Mobil Online <https://www.arsipdigital.ne
 Contents:
 
 .. toctree::
-   :maxdepth: 2
+   :maxdepth: 1
    :glob:
 
    *
