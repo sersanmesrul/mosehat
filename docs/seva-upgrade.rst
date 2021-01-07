@@ -1,7 +1,7 @@
 Seva Upgrade Mobil
 ------------------
 
-Bagaimana jika sudah punya mobil namun ingin upgrade ke mobil baru? Seva dapat menjadi wadah penjualan kendaraan lama sebagai tukar tambah mobil. Layanan ini cocok untuk trade in kendaraan lama Anda untuk mendapatkan kendaraan terbaru dari Seva.
+Bagaimana jika sudah punya mobil namun ingin upgrade ke mobil baru? `Seva Tempat Mobil Online <https://www.daihatsuzebra.web.id/2021/01/seva-tempat-mobil-online.html>`_ dapat menjadi wadah penjualan kendaraan lama sebagai tukar tambah mobil. Layanan ini cocok untuk trade in kendaraan lama Anda untuk mendapatkan kendaraan terbaru dari Seva.
 
 Melalui cara ini, dapat tukar tambah mobil lama dan mendapatkan mobil baru tanpa ribet. Prosesnya adalah:
 
@@ -12,5 +12,5 @@ Melalui cara ini, dapat tukar tambah mobil lama dan mendapatkan mobil baru tanpa
 * Jika sudah ada kesepakatan, harga dari mobil Anda bisa dijadikan untuk pembayaran baik tunai maupun kredit.
 * Jika deal, dana penjualan langsung siap digunakan untuk memotong pembayaran kendaraan baru Anda. Bila tunai, tinggal menambahkan kekurangan atas mobil yang baru tersebut. Namun bila kredit, maka harga mobil lama Anda akan dijadikan uang muka.
 
-Bagaimana jika ingin jual mobil bekas yang Anda punya? Di Seva.id ada fitur Jual Mobil Saya sebagai solusinya. Anda bisa menjual kembali kendaraan itu dengan mudah dan cepat tanpa menunggu lama. Selain itu, menjual mobil di Seva.id tidak hanya mudah dan cepat, tetapi juga gratis alias tidak dipungut biaya dan mobil pun tidak harus di bawa ke Jakarta.
+Bagaimana jika ingin jual mobil bekas yang Anda punya? Di `Seva Tempat Mobil Online <https://www.literasipublik.com/seva-tempat-mobil-online>`_ ada fitur Jual Mobil Saya sebagai solusinya. Anda bisa menjual kembali kendaraan itu dengan mudah dan cepat tanpa menunggu lama. Selain itu, menjual mobil di Seva.id tidak hanya mudah dan cepat, tetapi juga gratis alias tidak dipungut biaya dan mobil pun tidak harus di bawa ke Jakarta.
 
