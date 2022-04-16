@@ -10,31 +10,31 @@ Mosehat merupakan obat herbal ekstrak daun kelor yang diformulasikan oleh LAB be
 
 Bukan hanya {moringa (daun kelor)|daun kelormoringa) pilihan saja, dalam jamu tetes Mosehat terdapat formulasi tambahan yaitu Habbatussauda (Jinten Hitam) serta Propolis sehingga menjadikan Mosehat sebagai obat modern dengan banyak manfaat bagi kesehatan tubuh.
 
-**Tanggapan Konsumen untuk Obat Herbal Modern Mosehat**
+##Tanggapan Konsumen untuk Obat Herbal Modern Mosehat##
 
 Inilah sebagian Bagaimana Tanggapan Konsumen untuk Obat Herbal Modern Mosehat dari orang-orang yang telah mengkonsumsi Mosehat untuk penyakit yang dideritanya.
 
-<a href="https://www.kanalpengetahuan.com/testimoni-mosehat-untuk-obat-diabetes" target="_blank" rel="noopener">Testimoni Mosehat</a> dari Ibu Romlah (47 Tahun)
+`Testimoni Mosehat <https://www.kanalpengetahuan.com/testimoni-mosehat-untuk-obat-diabetes>`_ Sembuh dari Sinusitus
 
 Saya mempunyai penyakit sinusitis. dengan ikhtiar, meminum obat Mosehat, Alhamdulillah penyakit sinusitis saya sudah mereda. Sudah ngga begitu sakit yang saya rasakan. Sakit kepala yang sangat sangat sakit, sesak napas, hidung yang terasa sakit di sini, sudah mereda. Alhamdulillah dengan minum mosehat ini sangat banyak manfaatnya, Asam lambung juga bisa, banyak sekali manfaatnya. Buat teman teman yang punyai penyakit yang seperti saya, sinusitis, minum obat ini. insyaallah akan berangsur sakitnya. Terimakasih Mosehat
 
-<a href="https://www.kanal.web.id/testimoni-mosehat-jamu-tetes-untuk-asam-urat" target="_blank" rel="noopener">Testimoni Mosehat</a> Sembuh dari Wasir
+`Testimoni Mosehat <https://www.kanal.web.id/testimoni-mosehat-jamu-tetes-untuk-asam-urat>`_ Sembuh dari Wasir
 
 Saya, Suami saya sakit ambeien parises selama 4 th, sudah berbagai macam obat sudah saya berikan ternyata belum sembuh juga. Selama ini dia dalam perjalanan pulang kerja, perjalanan jauh naik kendaraan, Selalu mengeluh kesakitan, apalagi setelah bab, dia pasti mengeluarkan darah, rasa gatal dan benjolan benjolan di sekitar dubur. Kalau setelah itu, selalu dikompres dengan air hangat. Setelah saya membrowsing, menemukan obat Mosehat, saya coba membeli, dan untuk dikonsumsi. Dengan 1 botol ini, suami saya sudah ada perubahan, sekarang tidak mengeluh setelah pulang kerja, tidak mengeluh kesakitan, kalau bab tidak keluar darah Dan benjolan sudah agak mengecil. Mosehat botol kecil, banyak Manfaat nya. Ayo kita galakan Kesehatan kita dengan Mosehat. Mosehat yess
 
-<a href="https://lenterakecil.com/testimoni-mosehat-untuk-pengobatan-asam-lambung/" target="_blank" rel="noopener">Testimoni Mosehat</a> Sembuh dari Rematik
+`Testimoni Mosehat <https://lenterakecil.com/testimoni-mosehat-untuk-pengobatan-asam-lambung>`_ Sembuh dari Rematik
 
 Saya merasakan jari-jari tangan saya, yang tadinya kaku, kesemutan, sekarang Alhamdulillah sudah berkurang. Terimakasih, terimakasih banyak Mosehat. Mosehat is the best.
 
-<a href="https://www.padamu.net/testimoni-mosehat-untuk-pengobatan-asma" target="_blank" rel="noopener">Testimoni Mosehat</a> Sembuh dari Radang Usus
+`Testimoni Mosehat <https://www.padamu.net/testimoni-mosehat-untuk-pengobatan-asma>`_ sembuh dari Radang Usus
 
 Saya sudah 2 tahun menderita radang usus dan sudah berobat kemana-mana namun tak kunjung sembuh. Setelah saya mengenal Produk Mosehat, Alhamdulillah radang usus saya berangsur membaik. Terimakasih Mosehat
 
-<a href="https://www.literasipublik.com/testimoni-mosehat-oleh-penderita-penyakit-amandel" target="_blank" rel="noopener">Testimoni Mosehat</a> Sembuh dari Liver
+`Testimoni Mosehat <https://www.literasipublik.com/testimoni-mosehat-oleh-penderita-penyakit-amandel>`_ Sembuh dari Liver
 
 Setelah saya mengkonsumsi Mosehat selama 2 Minggu, insyaallah ada perkembangan nya dengan liver kronis saya. Yang belum mencoba Mosehat, cobalah rasakan khasiatnya. Semoga Mosehat membawa kita sehat. Sekian dan terimakasih.
 
-Mosehat, Jamu Tetes Ekstrak Daun Kelor
+**Mosehat, Jamu Tetes Ekstrak Daun Kelor**
 
 Mosehat Extra Moringa sudah mengantongi izin produk industri rumah tangga (P-IRT), IJIN DEP KES P-IRT No. 2093275051029-24, BPOM TR 193627491
 
@@ -56,7 +56,7 @@ Dapatkan keajaiban moringa dalam sebotol Mosehat untuk semesta ini di toko onlin
 
 **SEVA Tempat Jual Beli Mobil Online** merupakan sebuah platform digital marketplace otomotif yang dikelola oleh Astra Digital Internasional, salah satu anak perusahaan terkemuka PT Astra International Tbk. Melalui website seva.id segala urusan otomotif hingga properti dihadirkan kepada masyarakat untuk meng-upgrade hidup. Selain itu, kehadiran Seva digital untuk mendukung pembentukan ekosistem digital di dalam grup Astra dan juga perkembangan ekonomi digital Indonesia.
 
-Beragam fitur yang ada di `Seva Tempat Mobil Online <https://www.arsipdigital.net/seva-tempat-mobil-online>`_ dirancang untuk memberikan kemudahan bagi konsumen mulai dari membeli mobil baru, konsumen juga dapat menjual mobil lama, melakukan tukar tambah, membeli mobil bekas, suku cadang, booking service, permintaan melakukan test drive hingga kalkulator kredit yang membantu estimasi pembiayaan.
+Beragam fitur yang ada di `Testimoni Mosehat <https://www.arsipdigital.net/seva-tempat-mobil-online>`_ dirancang untuk memberikan kemudahan bagi konsumen mulai dari membeli mobil baru, konsumen juga dapat menjual mobil lama, melakukan tukar tambah, membeli mobil bekas, suku cadang, booking service, permintaan melakukan test drive hingga kalkulator kredit yang membantu estimasi pembiayaan.
 
 Contents:
 
